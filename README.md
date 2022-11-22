@@ -2,7 +2,7 @@ How to become a good software developer?
 
 Well, first you need to understand that development is not a one-person process. 
 
-Even when you're alone in the room and working on a personal project, that work involves re-using work done by countless number of library and tooling authors. 
+Even when you're alone in the room (my personal preference, lol) and working on a personal project, that work involves re-using work done by countless number of library and tooling authors. 
 
 Each one of them had their own expectations for you and how you use their work. Learn to study those expectations and respect them. 
 
