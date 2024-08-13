@@ -8,6 +8,6 @@ Each one of them had their own expectations for you and how you use their work. 
 
 And that will make you a better software developer.
 
-P.S. Learn graph and information theory, too.
+P.S. Learn graph and information theories, too.
 
 https://mstdn.social/@chedim/109280322154350944
