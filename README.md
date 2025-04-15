@@ -10,6 +10,6 @@ And that will make you a better software developer.
 
 P.S. Learn graph and information theories, too.
 
-P.P.S. And then there's the scientists like ... well, all of them. Be worthy of their memory.
+P.P.S. And then there's the scientists that discovered the physics that created your profession, like ... well, all of them. Be worthy of their memory and unvawering pursuit of Truth.
 
 https://mstdn.social/@chedim/109280322154350944
