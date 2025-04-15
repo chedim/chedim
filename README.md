@@ -10,4 +10,6 @@ And that will make you a better software developer.
 
 P.S. Learn graph and information theories, too.
 
+P.P.S. And then there's the scientists like Alan Turing. Be worthy of their memory.
+
 https://mstdn.social/@chedim/109280322154350944
