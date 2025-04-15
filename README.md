@@ -10,6 +10,6 @@ And that will make you a better software developer.
 
 P.S. Learn graph and information theories, too.
 
-P.P.S. And then there's the scientists that discovered the physics that created your profession, like ... well, all of them. Of all genders, races, beliefs and orientations. Overcoming hatred and fear in an attempt to understand, and thus make the world better. Be worthy of their memory and unvawering pursuit of Truth. Eaxch one of them was a tiny Universe, just like you, princess. You are but a speck of dust in this universe, but together, we are the only known civilization in it.
+P.P.S. And then there's the scientists that discovered the physics that created your profession, like ... well, all of them. Of all genders, races, beliefs and orientations. Overcoming hatred and fear in an attempt to understand, and thus make the world better. Be worthy of their memory and unvawering pursuit of Truth. Each one of them was a tiny Universe, just like you, princess. You are but a speck of dust in this universe, but together, we are the only known civilization in it.
 
 https://mstdn.social/@chedim/109280322154350944
